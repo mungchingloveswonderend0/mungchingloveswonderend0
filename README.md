@@ -1,5 +1,31 @@
+***MOONLIGHT LEND ME YOUR POWER!***
 
-<!---
-mungchingloveswonderend0/mungchingloveswonderend0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+
+
+☆ alias: axcore, ax, basil ☆ 
+
+☆ FICTOSEXUAL BIGENDER OMNI-SAPPHIC ! ☆
+
+☆ warrior cats + wonderend 0 + aikatsu hyperfixator ☆
+
+***DNI LIST***
+
+basic dni
+
+proship
+
+spindlehorse/vivziepop defenders(unless i alr know you)
+
+☆ ***FOR PONYTOWN!*** ☆
+
+**C+H FRIENDLY!**
+PLEASE, PLEASE, please DO NOT COPY MY SKINS.
+
+inspo is okay, unless it's heavy.
+
+touch comfort! please cuddle or hide!
+
+
+
+
