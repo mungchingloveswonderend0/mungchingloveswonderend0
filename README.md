@@ -1,31 +1,4 @@
-***MOONLIGHT LEND ME YOUR POWER!***
-
-
-
-
-☆ alias: axcore, ax, basil ☆ 
-
-☆ FICTOSEXUAL BIGENDER OMNI-SAPPHIC ! ☆
-
-☆ warrior cats + wonderend 0 + aikatsu hyperfixator ☆
-
-***DNI LIST***
-
-basic dni
-
-proship
-
-spindlehorse/vivziepop defenders(unless i alr know you)
-
-☆ ***FOR PONYTOWN!*** ☆
-
-**C+H FRIENDLY!**
-PLEASE, PLEASE, please DO NOT COPY MY SKINS.
-
-inspo is okay, unless it's heavy.
-
-touch comfort! please cuddle or hide!
-
-
+**Tree house**
+https://cdn.discordapp.com/attachments/1127840377974562857/1304799553916112948/IMG_1890.jpg?ex=6730b4c7&is=672f6347&hm=1358d7adc5b14577b6ce7c6a04d13139af976ecd228857601e0f7d150c341351&
 
 
